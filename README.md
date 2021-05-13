@@ -1,5 +1,1 @@
-This read me contains ASCII ART (⌐□_□).
-  _._     _,-'""`-._
- (,-.`._,'(       |\`-/|
-     `-.-' \ )-`( , o o)
-           `-    \`_`"'-
+This read me contains ASCII ART (⌐□_□)  ʕ•ᴥ•ʔ  ♡  (◕‿◕✿). 
